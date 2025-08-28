@@ -5,7 +5,6 @@
 
 ---
 
-## Features![WhatsApp Image 2025-08-28 at 5 39 09 PM](https://github.com/user-attachments/assets/5dd3761e-4968-4f7d-a40a-568fd13a22a6)
 ![WhatsApp Image 2025-08-28 at 5 39 09 PM](https://github.com/user-attachments/assets/08f724d5-f160-4220-b453-4efd8b82a196)
 
 
